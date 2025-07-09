@@ -1,2 +1,0 @@
-# Tan
-Indoor Plants
